@@ -1,4 +1,4 @@
-#  
+#  advanced Script for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring unlimited stamina and no clip. Safe and powerful for
 
 
 
